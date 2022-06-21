@@ -8,6 +8,10 @@
 
 [3.2 Lesson 2018-04-20 2](https://www.dropbox.com/s/9o2od7wcf14tvlr/20180420-190736.m4a?dl=0)
 
+[4. Lesson 2018-04-22](https://www.dropbox.com/s/84hd74mna3j5bes/20180422-095811.m4a?dl=0)
+
+[5. Lesson 2018-04-30](https://www.dropbox.com/s/tp1g9ds7sv47iwj/20180430-182954.m4a?dl=0)
+
 
 
 
