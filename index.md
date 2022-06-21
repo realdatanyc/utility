@@ -4,6 +4,10 @@
 
 [2. Lesson 2018-04-15](https://www.dropbox.com/s/yrhawgypaqefsr3/20180415-124007.m4a?dl=0)
 
+[3. Lesson 2018-04-20](https://www.dropbox.com/s/o5j2dssqiuniits/20180420-183005.m4a?dl=0)
+
+
+
 
 
 
