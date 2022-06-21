@@ -4,7 +4,9 @@
 
 [2. Lesson 2018-04-15](https://www.dropbox.com/s/yrhawgypaqefsr3/20180415-124007.m4a?dl=0)
 
-[3. Lesson 2018-04-20](https://www.dropbox.com/s/o5j2dssqiuniits/20180420-183005.m4a?dl=0)
+[3.1 Lesson 2018-04-20 1](https://www.dropbox.com/s/o5j2dssqiuniits/20180420-183005.m4a?dl=0)
+
+[3.2 Lesson 2018-04-20 2](https://www.dropbox.com/s/9o2od7wcf14tvlr/20180420-190736.m4a?dl=0)
 
 
 
